@@ -1,1 +1,1 @@
-# Firat-University-Software-Homework
+# Firat University Software Homework
